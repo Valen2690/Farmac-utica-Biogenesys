@@ -1,2 +1,2 @@
-# Farmac-utica-Biogenesys
+# Farmaceutica-Biogenesys
 Análisis de expansión estratégica
