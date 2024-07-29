@@ -1,3 +1,5 @@
+[![Blue-Yellow-Futuristic-Virtual-Technology-Blog-Banner.png](https://i.postimg.cc/tChDwmxC/Blue-Yellow-Futuristic-Virtual-Technology-Blog-Banner.png)](https://postimg.cc/QHdpWmmR)
+
 # Farmaceutica Biogenesys
 
 ## Introducción
